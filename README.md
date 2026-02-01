@@ -21,3 +21,8 @@ Hi, I’m Chetan Koirala 👨‍💻<br>An IT student and aspiring startup build
 [![](https://visitcount.itsvg.in/api?id=chetan079bca005-code&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+<br/>
+
+![gifgithub](https://github.com/user-attachments/assets/54dc1f7a-f327-43ab-ae9c-58c7421eee39)
+
+<br/>
